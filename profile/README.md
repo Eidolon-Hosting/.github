@@ -1,6 +1,6 @@
 # Eidolon Hosting
 
-**Your premier partner for professional game-server and cloud hosting solutions.**
+![Linkedin Eidolon](https://github.com/user-attachments/assets/bdb0dbb3-f458-4129-8abb-eaddc972e0d1)
 
 ---
 
